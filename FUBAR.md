@@ -19,8 +19,13 @@ Ted is a mouth breather.
 
 Did you hear about the Italian chef who died?  ...He pasta-way... lol wtfbbqsauce
 
+This is what Ted and ALice did on Ted's computer:
+  Ted is the best....hehehehehehe.   
+  
 This is what carol and bob did on carols computer.
 What did the fish say when he swam into a wall? --- dam.
 
+
 This is what carol and bob did on bobs computer
 If you’re American when you go in the bathroom… ----Your European!!
+
