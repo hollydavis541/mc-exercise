@@ -24,3 +24,8 @@ This is what Ted and ALice did on Ted's computer:
   
 This is what carol and bob did on carols computer.
 What did the fish say when he swam into a wall? --- dam.
+
+
+This is what carol and bob did on bobs computer
+If you’re American when you go in the bathroom… ----Your European!!
+
