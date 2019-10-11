@@ -8,7 +8,14 @@
  This is what Carol and Bob did working from Bob's laptop. Quality humor!!
     Did you hear about the serial killer on the train?
     - I heard he had loco-motives.
-  
-  Ted is a mouth breather.
+
+
+This is what Alice and Bob(s) did working on Alice's laptop. Good jokes below:
+Have you heard about my fear of speed bumps?
+I'm slowly getting over it.
+
+This is what Carol and Ted did on Ted's laptop.
+Ted is a mouth breather.
 
 Did you hear about the Italian chef who died?  ...He pasta-way... lol wtfbbqsauce
+
