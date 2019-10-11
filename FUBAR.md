@@ -9,3 +9,6 @@
     Did you hear about the serial killer on the train?
     - I heard he had loco-motives.
   
+  Ted is a mouth breather.
+
+Did you hear about the Italian chef who died?  ...He pasta-way... lol wtfbbqsauce
