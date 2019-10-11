@@ -22,3 +22,5 @@ Did you hear about the Italian chef who died?  ...He pasta-way... lol wtfbbqsauc
 This is what Ted and ALice did on Ted's computer:
   Ted is the best....hehehehehehe.   
   
+This is what carol and bob did on carols computer.
+What did the fish say when he swam into a wall? --- dam.
